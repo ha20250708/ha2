@@ -10,4 +10,4 @@
 
 本平台为您提供各类精选成人影片，覆盖热门剧情、系列、制服、人妻、欧美激情等多种题材，支持高清视频播放。所有影片都经过精心分类，用户可以方便地根据个人兴趣选择观看。平台无需注册，即可在线播放，支持多个设备，无广告打扰，确保极致观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha2 ）</span>
